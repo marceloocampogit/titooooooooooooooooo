@@ -1,0 +1,4 @@
+- 👋 Hola, Soy @titooooooooooooooooo
+- 👀 Estoy interesado en seguir aprendiendo constantemente
+- 🌱 Me encuentro aprendiendo todo lo relacionado a datos y programación
+- 📫 Para ponerse en contacto conmigo, marceloocampo1993@icloud.com
